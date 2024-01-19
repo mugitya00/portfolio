@@ -31,4 +31,4 @@
 
 ## 連絡先
 
-- G-mail [a@a.a](mailto:a@a.a)
+- G-mail Gmail [kishinoyuuma@gmail.com](mailto:kishinoyuuma@gmail.com)
